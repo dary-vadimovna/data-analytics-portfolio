@@ -33,5 +33,6 @@
 
 ## Контакты
 
+- **Телефон:** +79114114607
 - **Telegram:** [@dary_vadimovna](https://t.me/dary_vadimovna)
 - **Email:** [dasha.bogdanovav@mail.ru](mailto:dasha.bogdanovav@mail.ru)
